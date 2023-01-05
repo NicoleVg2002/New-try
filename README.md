@@ -44,3 +44,14 @@ From doing all the things in life you'd like to
 So if there's something you'd like to try
 If there's something you'd like to try
 Ask me, I won't say no, how could I?
+
+E cuarteto de Nos- Ya te vas a mejorar
+
+Un día, yo me iba a trabajar
+Cuando me caí por la escalera
+Entonces, me volví un anormal
+A raíz del golpe en la cabeza
+Los doctores me decían que me iba a recuperar
+Si seguía el tratamiento con paciencia
+Para la mujer, yo siempre había sido un anormal
+Así que ya no notaba la diferencia, ¿qué pasó? 
