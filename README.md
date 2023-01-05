@@ -34,3 +34,13 @@ All I ever needed
 Is here in my arms
 Words are very unnecessary
 They can only do harm
+
+The Smiths- ask me 
+
+Shyness is nice, and shyness can stop you
+From doing all the things in life you'd like to
+Shyness is nice, and shyness can stop you
+From doing all the things in life you'd like to
+So if there's something you'd like to try
+If there's something you'd like to try
+Ask me, I won't say no, how could I?
