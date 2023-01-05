@@ -55,3 +55,16 @@ Los doctores me decían que me iba a recuperar
 Si seguía el tratamiento con paciencia
 Para la mujer, yo siempre había sido un anormal
 Así que ya no notaba la diferencia, ¿qué pasó? 
+
+Stromae- Santé
+
+À ceux qui n'en ont pas
+À ceux qui n'en ont pas
+Rosa, rosa
+Quand on fout le bordel, tu nettoies
+Et toi, Albert
+Quand on trinque, tu ramasses les verres
+Céline, bataire
+Toi, tu t'prends des vestes au vestiaire
+Arlette, arrête
+Toi la fête tu la passes aux toilettes
