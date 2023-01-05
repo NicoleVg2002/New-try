@@ -44,3 +44,16 @@ From doing all the things in life you'd like to
 So if there's something you'd like to try
 If there's something you'd like to try
 Ask me, I won't say no, how could I?
+
+Stromae- Santé
+
+À ceux qui n'en ont pas
+À ceux qui n'en ont pas
+Rosa, rosa
+Quand on fout le bordel, tu nettoies
+Et toi, Albert
+Quand on trinque, tu ramasses les verres
+Céline, bataire
+Toi, tu t'prends des vestes au vestiaire
+Arlette, arrête
+Toi la fête tu la passes aux toilettes
