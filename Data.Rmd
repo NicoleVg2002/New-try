@@ -1,0 +1,10 @@
+---
+title: "Intento"
+author: "Nicole"
+date: "7/1/2023"
+output: html_document
+---
+Nicole
+a. Database: World Values Survey
+b. Information: La Encuesta Mundial de Valores es un proyecto global de investigación social que explora los valores y opiniones de la gente, cómo estos cambian con el tiempo, y su impacto social y político.
+c. Interest: I would like to keep stydying about post-materialisim and this survey has been used for that topic since 1996, the first year the survey was aplyied in Peru
